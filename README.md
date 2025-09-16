@@ -1,3 +1,4 @@
 # Proyect-4
 Presentacion con Gamma y explorar con perplexity
 Necesito que explores intensamente en la ciudad de posadas misiones,  ciudad fronteriza a las dificultades que se presentan en los alumnos de la secundaria diurna, específicamente en rango etario de 13 a 17 años. Tengo la hipótesis que el fracaso escolar y problemas como faltar a clase, repitencia, deserción escolar esta correlacionado con el mal uso de la tecnología, esto es una adicción como enfermedad a la tecnología, pero además se vuelven agnósticos, por ser demasiado hedonistas, a esto el no tener un futuro creíble se retraen al consumo de drogas. Además el contexto de la pobreza, la falta de recursos y acceso a un mejor bienestar para su educación, son excluidos por sus pares y en general por la comunidad.
+[[Presentacion compartida] (https://gamma.app/docs/uqn5nsq1zc4qm1o?following_id=9u81ax693i07fyd&follow_on_start=true)]
